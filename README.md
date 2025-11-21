@@ -102,3 +102,7 @@ https://modsfire.com/05LjpqlduC13GWz
 منهم شوارع 
 
 https://www.beamng.com/resources/variable-grip-tires-on-lua.21681/
+
+منعم شوارع
+
+https://www.beamng.com/resources/road-grip-editor.15350/
