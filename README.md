@@ -114,5 +114,4 @@ https://modsfire.com/Jo7651nWnp5vDUW
 
 
 لاند ٢٢
-
-https://modsfire.com/F6939eM63jEJ5FF
+https://modsfire.com/QtnD95wcOM94a3s
