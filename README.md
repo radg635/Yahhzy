@@ -160,3 +160,7 @@ https://sharemods.com/tcz96b5a7j78/RC_SquareBody.zip.html
 
 فورد 
 https://sharemods.com/apj9spk6yund/Ford_Crown_Victoria_V2.zip.html
+
+هايلوكس 2002 
+
+https://sharemods.com/ugtiulu1t4i8/2002-2005_Toyota_Hilux_GL_V2.zip.html
