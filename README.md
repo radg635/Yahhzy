@@ -154,3 +154,6 @@ https://www.modland.net/beamng.drive-mods/cars/90-97-toyota-land-cruiser-80-seri
 
 صالون الهاشمي 
 https://www.mediafire.com/file/dna9afv2sxv5v4b/Mcleod_hdd.rar/file
+
+جمس 
+https://sharemods.com/tcz96b5a7j78/RC_SquareBody.zip.html
