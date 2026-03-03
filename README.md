@@ -142,25 +142,4 @@ https://modsfire.com/vu67q9O5aVu7mdJ
 https://modsfire.com/4ytFGm1b19IjtOR
 
 
-لكزز 2015
-https://modsfire.com/MP5ra8F1S737QdI
 
-هيلقس غمارتين ١٤
-https://modsfire.com/5OA0o7318hYacHkج
-
-صالون ٩٠
-https://www.modland.net/beamng.drive-mods/cars/90-97-toyota-land-cruiser-80-series.html
-
-
-صالون الهاشمي 
-https://www.mediafire.com/file/dna9afv2sxv5v4b/Mcleod_hdd.rar/file
-
-جمس 
-https://sharemods.com/tcz96b5a7j78/RC_SquareBody.zip.html
-
-فورد 
-https://sharemods.com/apj9spk6yund/Ford_Crown_Victoria_V2.zip.html
-
-هايلوكس 2002 
-
-https://sharemods.com/ugtiulu1t4i8/2002-2005_Toyota_Hilux_GL_V2.zip.html
