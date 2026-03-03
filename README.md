@@ -151,5 +151,3 @@ https://modsfire.com/5OA0o7318hYacHkج
 صالون ٩٠
 https://www.modland.net/beamng.drive-mods/cars/90-97-toyota-land-cruiser-80-series.html
 
-ههلي ٢٠٠٢
-https://www.mediafire.com/file/6ssifwhq0qbvy17/YBANIH-ABOTRK-BULLET.rar/file
