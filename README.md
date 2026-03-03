@@ -147,3 +147,6 @@ https://modsfire.com/MP5ra8F1S737QdI
 
 هيلقس غمارتين ١٤
 https://modsfire.com/5OA0o7318hYacHkج
+
+صالون ٩٠
+https://www.modland.net/beamng.drive-mods/cars/90-97-toyota-land-cruiser-80-series.html
