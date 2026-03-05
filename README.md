@@ -129,18 +129,7 @@ https://modsfire.com/vu67q9O5aVu7mdJ
 https://modsfire.com/4ytFGm1b19IjtOR
 
 
-سيرا 2013
-https://modsfire.com/vzHV00lGe211b68 
-
-
 اكورد 17 
 https://modsfire.com/V2sQw4hZPikjES7
 
-تورس
-https://modsfire.com/svhinihSG5xq5E8
 
-اكسبدشن 
-https://modsfire.com/055Vhk1S4Rn6HV6
-
-كابرس ١٣ 
-https://modsfire.com/bmQP32U42cMpcD8
