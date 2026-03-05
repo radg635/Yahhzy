@@ -85,9 +85,6 @@ https://modsfire.com/7ApJyoebBHKqRYo
 https://modsfire.com/eBiq4832cFJoMa6
 
 
-فتك
-https://modsfire.com/2N79Ves7trkJiDl
-
 
 ماب محطه و دايري 
 
@@ -100,10 +97,6 @@ https://modsfire.com/05LjpqlduC13GWz
 
 
 
-
-منهم شوارع 
-
-https://www.beamng.com/resources/variable-grip-tires-on-lua.21681/
 
 منعم شوارع
 
@@ -118,10 +111,6 @@ https://modsfire.com/Jo7651nWnp5vDUW
 لاند ٢٢
 https://modsfire.com/QtnD95wcOM94a3s
 
-
-لكزس ٢٠١٣ فوق
-
-https://modsfire.com/7xU3Zw73yM0l0I6
 
 
 فورشنر
@@ -147,8 +136,3 @@ https://modsfire.com/vzHV00lGe211b68
 اكورد 17 
 https://modsfire.com/V2sQw4hZPikjES7
 
-بهبهاني 79 
-https://modsfire.com/b6O72564Zs3tkBN
-
-كورلا
-https://modsfire.com/gmOMhWychYklNsF
