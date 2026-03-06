@@ -150,5 +150,5 @@ https://modsfire.com/TJ1A7Uc13I9QI58
 هايولكس 2005
 https://gofile.io/d/MMMbVM
 
-هايوكس 2002
-https://www.mediafire.com/file/6ssifwhq0qbvy17/YBANIH-ABOTRK-BULLET.rar/file
+لكزز2000
+https://www.mediafire.com/file/rl5osbd004qj1md/LC_100_omashida.zip/file
