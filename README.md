@@ -146,5 +146,5 @@ https://modsfire.com/983R586f4Cq0S5L
 
 
 
-هايولكس 2004
-https://modsfire.com/82d4gnoc70r1JhW
+هلي 
+https://www.mediafire.com/file/6wuingbsa60lpc3/Hilux+2012+-+2015.zip/file
