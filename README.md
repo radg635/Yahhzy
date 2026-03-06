@@ -157,3 +157,6 @@ https://modsfire.com/7v3uIZ40VahzH9e
 
 بترول 25
 https://modsfire.com/K6Y40FdcDRu5tP5
+
+جيب بوليسي تجريبي 
+https://modsfire.com/CazKs25v6J2J8nA
