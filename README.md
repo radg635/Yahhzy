@@ -152,5 +152,8 @@ https://sharemods.com/ps5ebxgoo1qd/BdRaN_Lx570.506W.rar.html
 شعفيه 2002
 https://www.mediafire.com/file/xnej9en4hqp7l3t/qifHilux2005_modland.zip/file
 
+هيقلس 2004
+https://modsfire.com/7v3uIZ40VahzH9e
+
 بترول 25
 https://modsfire.com/K6Y40FdcDRu5tP5
