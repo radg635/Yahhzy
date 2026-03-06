@@ -145,24 +145,6 @@ https://modsfire.com/983R586f4Cq0S5L
 ماب ثقه https://modsfire.com/x0pFzyU8nlU5vk9
 
 
-سوبر 
-https://sharemods.com/ps5ebxgoo1qd/BdRaN_Lx570.506W.rar.html
-
-
 شعفيه 2002
 https://www.mediafire.com/file/xnej9en4hqp7l3t/qifHilux2005_modland.zip/file
 
-هيقلس 2004
-https://modsfire.com/7v3uIZ40VahzH9e
-
-بترول 25
-https://modsfire.com/K6Y40FdcDRu5tP5
-
-جيب بوليسي تجريبي 
-https://modsfire.com/CazKs25v6J2J8nA
-
-تجريبي صالون ٢١
-https://modsfire.com/1qs5268glCJ92VZ
-
-فورد 
-https://www.mediafire.com/file/rzwf6ul6lyt5xsv/fordcrownvictoria.zip/file
