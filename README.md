@@ -1,4 +1,4 @@
- الحيانـي
+            الحيانـي
 
 جيب٢٣
 https://www.mediafire.com/file/79xsb9m9yzhylcx/Land_Cruiser_j70_2023_KHwylD.zip/file
@@ -153,3 +153,6 @@ https://www.mediafire.com/file/6wuingbsa60lpc3/Hilux+2012+-+2015.zip/file
 https://sharemods.com/ps5ebxgoo1qd/BdRaN_Lx570.506W.rar.html
 
 ددسن https://modsfire.com/61XzzOq75xZ188i
+
+كامري 24 
+https://modsfire.com/woyu1oUb8K6q075
