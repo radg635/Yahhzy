@@ -69,8 +69,6 @@ https://www.dropbox.com/scl/fi/iudwc1yl80day1996nnng/Al-Jaradiah-Riyadh_modland-
 ماب تطعيس و تصوير 
 https://www.mediafire.com/file/pdincucedgj5rhw/axle_valley.zip/file
 
-دسكورد
-https://discord.gg/c8zYV8U8S
 
 ماب خويلد 
 https://www.dropbox.com/scl/fi/x3tw3vjm0nmierww711w4/Content_Creators_KHwylD.zip?rlkey=d58srsbl57hsncmzr7fuo0bvp&st=xbjdkogc&dl=0
@@ -150,3 +148,5 @@ https://www.mediafire.com/file/xnej9en4hqp7l3t/qifHilux2005_modland.zip/file
 
 
 
+كامري ١١
+https://www.mediafire.com/file/zrvek9dmif2ibhm/Camry+11+-+01+زقرت.zip/file
