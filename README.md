@@ -147,10 +147,3 @@ https://modsfire.com/983R586f4Cq0S5L
 https://www.mediafire.com/file/xnej9en4hqp7l3t/qifHilux2005_modland.zip/file
 
 
-صالون
-https://www.mediafire.com/file/1an2sw5c
-aky4qwy/land+cruiser+j100.zip/file
-كامري25
-https://www.mediafire.com/file/43hjlhtgc5fkk2q/toyota-camry-2025-le-xle_.zip/file
-كامري
-https://www.mediafire.com/file/2r7t1ml983xtgdk/camry75.zip/file
