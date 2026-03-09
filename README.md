@@ -150,3 +150,8 @@ https://www.mediafire.com/file/xnej9en4hqp7l3t/qifHilux2005_modland.zip/file
 https://modsfire.com/1n9fA6KQrt2ZDx7
 
 https://modsfire.com/vtc34hRg01w72c6
+جمس
+https://modsfire.com/A57ocVX1VL69JN5
+
+بهبهاني 
+https://modsfire.com/bwW2V1AD60dzCX0
