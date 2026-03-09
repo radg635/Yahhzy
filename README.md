@@ -148,5 +148,4 @@ https://www.mediafire.com/file/xnej9en4hqp7l3t/qifHilux2005_modland.zip/file
 
 
 
-كامري ١١
-https://www.mediafire.com/file/zrvek9dmif2ibhm/Camry+11+-+01+زقرت.zip/file
+https://www.mediafire.com/file/qiz525c0t8zigqj/Cr7.f150+(1).zip/file
