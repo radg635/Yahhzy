@@ -147,6 +147,6 @@ https://modsfire.com/983R586f4Cq0S5L
 https://www.mediafire.com/file/xnej9en4hqp7l3t/qifHilux2005_modland.zip/file
 
 
-https://www.mediafire.com/file/1an2sw5caky4qwy/land+cruiser+j100.zip/file
+https://modsfire.com/1n9fA6KQrt2ZDx7
 
 https://modsfire.com/vtc34hRg01w72c6
