@@ -155,11 +155,4 @@ https://modsfire.com/A57ocVX1VL69JN5
 تورس 
 https://modsfire.com/V27g94s7C8aVFRB
 
-كوينينه
-https://modsfire.com/64Bh2590566423w
 
-كامري 2002
-https://modsfire.com/5U6wGQ9CTxF2RYA
-
-كامري 24
-https://modsfire.com/1n9fA6KQrt2ZDx7
