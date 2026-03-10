@@ -152,9 +152,6 @@ https://modsfire.com/1n9fA6KQrt2ZDx7
 بهبهاني ٧٩
 https://modsfire.com/A57ocVX1VL69JN5
 
-
- صالون 
- https://www.mediafire.com/file/7xwgy44bir2r5yk/Mcleod_hdd.zip/file
  
 صالون ١٥
 https://www.mediafire.com/file/35kmtn3skbpumfa/Cr7.2015.zip/file
