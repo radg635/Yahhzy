@@ -23,6 +23,8 @@ https://modsfire.com/x0pFzyU8nlU5vk9
 ماب
 https://www.mediafire.com/file/bvbtq083xr43leo/0Toxic_Street_v1_1.zip/file
 
+ماب 
+https://www.mediafire.com/file/01hxc74s29uhkhb/0Toxic_Street_v1_1_edit_S6B.zip/file
 لكزس ٢٠٢٣
 https://modsfire.com/IkCNuQ5HJexCBH2
 
