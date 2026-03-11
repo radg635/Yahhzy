@@ -158,12 +158,5 @@ https://modsfire.com/A57ocVX1VL69JN5
 صالون ١٥
 https://www.mediafire.com/file/35kmtn3skbpumfa/Cr7.2015.zip/file
 
-ماب 
-https://gofile.io/d/qo4gmj
-
-ماب 
-https://www.mediafire.com/file/01hxc74s29uhkhb/0Toxic_Street_v1_1_edit_S6B.zip/file
- ماب طوكيو
- https://www.mediafire.com/file/37of84k6yz4ypml/c1_forums.zip/file
-صالون٢١
-https://www.mediafire.com/file/rp1xs0qb20l6lws/BdRaN_Land_2016-2021.zip/file
+هيلكس
+https://www.mediafire.com/file/ucfnsww7afsd26y/Hilu16+b7(1)+(2).zip/file
