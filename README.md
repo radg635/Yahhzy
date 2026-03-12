@@ -158,5 +158,4 @@ https://modsfire.com/A57ocVX1VL69JN5
 صالون ١٥
 https://www.mediafire.com/file/35kmtn3skbpumfa/Cr7.2015.zip/file
 
-هيلكس
-https://www.mediafire.com/file/ucfnsww7afsd26y/Hilu16+b7(1)+(2).zip/file
+ابتما
