@@ -172,3 +172,6 @@ https://www.mediafire.com/file/cjik5nfdxnqywyl/monster_j70.zip/file
 
 كامري 
 https://www.mediafire.com/file/i6df4tomoj91a4k/ali_camry.zip/file
+
+صالول
+https://www.mediafire.com/file/e13sh8h81ali3nz/ToyotaLandCruiserJ80Omashida11.zip/file
