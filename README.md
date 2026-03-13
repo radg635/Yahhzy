@@ -169,3 +169,6 @@ https://www.mediafire.com/file/cjik5nfdxnqywyl/monster_j70.zip/file
 
  لكزز ٢٥
  https://www.mediafire.com/file/ciz5qkgyjs3h8ir/LX600_Ray+(1).zip/file
+
+كامري 
+https://www.mediafire.com/file/i6df4tomoj91a4k/ali_camry.zip/file
