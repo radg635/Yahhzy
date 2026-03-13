@@ -161,15 +161,11 @@ https://modsfire.com/A57ocVX1VL69JN5
 https://www.mediafire.com/file/35kmtn3skbpumfa/Cr7.2015.zip/file
 
 
-جمس شفر
-https://modsfire.com/b9W9i98A43b0k4F
-
-
-https://modsfire.com/6478twUslZATlq5
-
-
 سميحي 
 https://modsfire.com/r08nvLn83f9l775
 
 جيب
 https://www.mediafire.com/file/cjik5nfdxnqywyl/monster_j70.zip/file
+
+ لكزز ٢٥
+ https://www.mediafire.com/file/ciz5qkgyjs3h8ir/LX600_Ray+(1).zip/file
