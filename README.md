@@ -175,3 +175,6 @@ https://modsfire.com/61XzzOq75xZ188i
 
 سكويا 
 https://www.mediafire.com/file/5y88a164uwu58ys/sequoia_13_LONLEY.zip/file
+
+افجي ٢٢
+https://www.mediafire.com/file/d9ozarhr6gxwgte/افجي.zip/file
