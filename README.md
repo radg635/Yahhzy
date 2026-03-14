@@ -173,5 +173,5 @@ https://www.mediafire.com/file/cjik5nfdxnqywyl/monster_j70.zip/file
 ددسن
 https://modsfire.com/61XzzOq75xZ188i
 
-افجي
+سكويا 
 https://www.mediafire.com/file/5y88a164uwu58ys/sequoia_13_LONLEY.zip/file
